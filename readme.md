@@ -1,4 +1,4 @@
-# WI-FI CONECTA+ Website
+# Wi-Fi+ Website
 
 ## 🌐 Professional Internet Service Provider Website
 
